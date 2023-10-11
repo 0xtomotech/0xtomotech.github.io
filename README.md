@@ -1,1 +1,0 @@
-# 0xtomotech.github.io
